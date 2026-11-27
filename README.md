@@ -1,5 +1,5 @@
 # Sister-Derby
-# 🧜🏽‍♀️ SISTER DERBY FUNPAGE
+# SISTER DERBY FUNPAGE
 
 ### Celebrating the world of Sister Derby — The African Mermaid.
 
